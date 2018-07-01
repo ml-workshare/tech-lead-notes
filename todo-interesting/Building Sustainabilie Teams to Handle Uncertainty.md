@@ -1,5 +1,7 @@
 @jenny_duckett
 
+slides here: https://noti.st/jennyd/bnnoWW/slides
+s
 *an empowered, open team who understand their context can adapt to change.*
 
 What can disrupt your team?
